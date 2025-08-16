@@ -1,4 +1,5 @@
 # Gummysearch Promo Code "ARCHANA" – 20% Off on All Plans + Lifetime Access
+![Gummysearch Promo Code](https://github.com/user-attachments/assets/81dd5b99-e179-49df-a789-6653bf109269)
 
 If you're looking to gain valuable insights from Reddit communities, **Gummysearch** is the perfect tool for you. This platform allows marketers, content creators, and businesses to track conversations, analyze trends, and uncover audience interests across niche subreddits. 
 
